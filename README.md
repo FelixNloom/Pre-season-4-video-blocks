@@ -6,7 +6,9 @@ The "Issues" tab is the place to go to report problems that you notice. This are
 
 The "Projects" tab is where you'll find a project (a fancy check list) for completeing production of this season of Multiplayer Mayhem.
 
-Listed below are links to the first edits of the videos. Please provide feedback so we can develop impressive final versions.
+ROUGH EDITS
+
+As of 13 August 2019, the videos are still in prodcutoin. Listed below are links to the first edits of the videos. Please provide feedback so we can develop impressive final versions.
 
 Week 1 - Gang Beasts
 https://youtu.be/VxRozjydOvM
