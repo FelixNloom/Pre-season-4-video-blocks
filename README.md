@@ -17,6 +17,7 @@ Week 2 - Pacman 256
 https://gaming.youtube.com/watch?v=feAAb86UF7I&feature=share
 
 Week 3 - Wheel
+https://gaming.youtube.com/watch?v=0bKUU0qK3jw&feature=share
 
 Week 4 - Wii Bowling
 Week 5 - Wii Baseball
