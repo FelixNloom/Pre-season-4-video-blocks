@@ -20,7 +20,15 @@ Week 3 - Wheel
 https://gaming.youtube.com/watch?v=0bKUU0qK3jw&feature=share
 
 Week 4 - Wii Bowling
+
+
 Week 5 - Wii Baseball
+https://youtu.be/Ww0xcpsgyA8
+
 Week 6 - Wii Mario Kart
+https://gaming.youtube.com/watch?v=UK-oXr29AX8&feature=share
+
 Week 7 - NES Pinball
+
+
 Week 8 - Jeopardy
